@@ -6,4 +6,4 @@ https://docs.google.com/forms/d/14F8U0g9a3rU78C83Aa0g50OXxa22lQiGZiEmhp3pQTc/edi
 
 ## для прохождения 
 
-https://goo.gl/forms/Mfs2B2xFNl8M1Mbq2 
+https://goo.gl/forms/gU33xO2NvLV0q3Zz2
